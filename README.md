@@ -1,1 +1,2 @@
-# GIFT-FOR-MY-WIFE-THAT-HAS-EVERYTHING
+GIFT FOR MY WIFE THAT HAS EVERYTHING
+ - So, my wife has everything, and because of that she never knows what to get for herself. I wanted to do something special for her so I ordered her the gift of choice. The idea is really simple — she gets to choose from a variety of candles based on a monthly schedule. Her friends loved it so they too decided to have their own gift of choice and order with us - https://lowpriceshirt.com/family-gifts/gift-for-wife/
